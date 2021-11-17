@@ -38,4 +38,4 @@ If you facing any issues please use the support section on our discord
 
 [Дискорд Eternal Games](https://ds.eternalrpg.com)
 
-If you facing any issues please use the support section on our discord
+Если у вас возникли любые проблемы или вопросы - пишите в поддержку нашего дискортд сервера
